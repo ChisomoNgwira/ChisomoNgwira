@@ -1,6 +1,6 @@
 - 👋 Hi, I’m ChisomoNgwira
 - 👀 I’m interested in web programming
-- 🌱 I’m currently learning bacgelors of science in business information system
+- 🌱 I’m currently learning bachelors of science in business information system
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 0991993132
 - 😄 Pronouns: ...
